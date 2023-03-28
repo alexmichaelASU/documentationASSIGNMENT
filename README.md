@@ -1,8 +1,11 @@
 # How to Tie your Shoes!
 ###### Tying your shoes is an essential skill that every kid needs to learn. This guide will teach you how to tie your shoes step by step. You'll Be a Pro in no time!
 
+
+
+
 Materials needed for tying your favorite shoes!
-*Your favorite pair of shoes with laces!
+* Your favorite pair of shoes with laces!
 
 ## Step 1: Find your favorite shoe!
 add image here
@@ -52,6 +55,6 @@ A: Your shoes should fit comfortably, with enough room for your toes to move aro
 Q: How tight should I tie my shoes?
 A: Your shoes should be snug, but not too tight. You should be able to wiggle your toes and move your feet comfortably.
 
-Troubleshooting:
+## Troubleshooting:
 If you are having trouble tying your shoes, try practicing the steps slowly and carefully. If you still can't get it, ask someone for help.
 
