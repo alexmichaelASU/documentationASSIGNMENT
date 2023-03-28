@@ -8,29 +8,30 @@ Materials needed for tying your favorite shoes!
 * Your favorite pair of shoes with laces!
 
 ## Step 1: Find your favorite shoe!
-add image here
+<a href="https://ibb.co/4FkHSKT"><img src="https://i.ibb.co/Bfk96cZ/tieshoe-1.jpg" alt="tieshoe-1" border="0"></a>
 
 ## Step 2: Put on your favorite shoe!
-add image here 
+<a href="https://ibb.co/sQxLCjD"><img src="https://i.ibb.co/hHQpcsn/tieshoe-2.jpg" alt="tieshoe-2" border="0"></a>
 
-## Step 3: Start by crossing one lace over the other, forming an X shape. Then pull super hard!
-add image here
+## Step 3: Start by crossing one lace over the other, forming an X shape then pull hard!
+<a href="https://ibb.co/2FHt1w0"><img src="https://i.ibb.co/Twd8xZD/tieshoe-33.jpg" alt="tieshoe-33" border="0"></a>
 
 ## Step 4: Take the top lace and make a small loop by folding it back on itself.
+<a href="https://ibb.co/gmGCQcY"><img src="https://i.ibb.co/7jHFB0h/tieshoe-4.jpg" alt="tieshoe-4" border="0"></a>
 
-## Step 5: Pinch the base of the loop between your thumb and first finger of one hand, making sure it stays open.
+## Step 5: With the other hand, make a similar loop with the other lace.
+<a href="https://ibb.co/hmJkT93"><img src="https://i.ibb.co/z4T1txq/tieshoe-5.jpg" alt="tieshoe-5" border="0"></a>
 
-## Step 6: With the other hand, make a similar loop with the other lace.
+## Step 6: Next, you must overlap the two loops, just like in Step 1, creating an X shape. 
+<a href="https://ibb.co/883xW8C"><img src="https://i.ibb.co/F7vYS7r/tieshow-6.jpg" alt="tieshow-6" border="0"></a>
 
-## Step 7: Take the second loop and lay it over the first loop, so that they cross in the middle and form an "X" shape again.
-
-## Step 8: Take the second loop and tuck it behind the first loop, so that the second loop is now underneath the first loop.
-
-## Step 9: With one hand, hold onto the loops where they cross in the middle. With the other hand, take the ends of both laces and pull them tight, making sure the loops stay in place.
-
-###### To tighten the knot further, pull on the loops.
+## Step 9: For the final step, all you have to do is pull, while making sure not to mess up the loops.
+<a href="https://ibb.co/TgS0knL"><img src="https://i.ibb.co/VqZCthm/tieshow-7.jpg" alt="tieshow-7" border="0"></a>
 
 # Congratulations! You have tied your shoes!
+###### To tighten the knot further, pull on the loops.
+
+
 
 
 
